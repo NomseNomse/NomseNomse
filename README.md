@@ -4,6 +4,5 @@
 <br>
 ![Fandoms](https://img.shields.io/badge/FANDOMS-3b82f6?style=flat)
 <br>
-![Descripción](https://64.media.tumblr.com/e7ca573f25edcd6061330197496e7e6d/64e3f69e9681492e-13/s250x400/a6a6a25ca60c37702db273627a1e444bc041fc13.pnj)
 <img src="https://64.media.tumblr.com/e7ca573f25edcd6061330197496e7e6d/64e3f69e9681492e-13/s250x400/a6a6a25ca60c37702db273627a1e444bc041fc13.pnj" width="150">
 </div>
