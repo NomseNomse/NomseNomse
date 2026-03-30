@@ -1,5 +1,4 @@
 # Introduction
-sih seveh
 <!DOCTYPE html>
 <html lang="es">
 <head>
