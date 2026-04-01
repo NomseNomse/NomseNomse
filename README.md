@@ -1,6 +1,7 @@
 <div align="center">
 
 ![About me](https://img.shields.io/badge/ABOUT_ME-FF0000?style=flat)
+Spanish/English... 
 <br>
 ![Fandoms](https://img.shields.io/badge/Cross_your_heart._Hope_to_die._Pray_he_sees_it.-3b82f6?style=flat)
 <br>
