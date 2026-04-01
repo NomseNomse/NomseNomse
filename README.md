@@ -3,7 +3,7 @@
 ![About me](https://img.shields.io/badge/ABOUT_ME-FF0000?style=flat)
 <br>
 Spanish/English... Multifandom... free to INT!!! :J **Basic DNI**... 2008
-!https://64.media.tumblr.com/daa0081b9e89c2e9c140b119589c0bec/549a4c455ec6182f-e3/s540x810/2bf0d08175d442ecb8080fba632d539c05d35216.pnj
+<img src="https://64.media.tumblr.com/daa0081b9e89c2e9c140b119589c0bec/549a4c455ec6182f-e3/s540x810/2bf0d08175d442ecb8080fba632d539c05d35216.pnj">
 <br>
 <br>
 ![Fandoms](https://img.shields.io/badge/Cross_your_heart._Hope_to_die._Pray_he_sees_it.-3b82f6?style=flat)
