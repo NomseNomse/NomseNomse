@@ -2,7 +2,7 @@
 
 ![About me](https://img.shields.io/badge/ABOUT_ME-FF0000?style=flat)
 <br>
-Spanish/English... 
+Spanish/English... Multifandom... free to INT!!! :J **Basic DNI**... 2008
 <br>
 ![Fandoms](https://img.shields.io/badge/Cross_your_heart._Hope_to_die._Pray_he_sees_it.-3b82f6?style=flat)
 <br>
